@@ -1,1 +1,1 @@
-# GRIP-At-TSF
+# GRIP-At-The Sparks Foundation
